@@ -1,8 +1,34 @@
 
 Starting a new life in Barcelona as a woodworker sounds like an exciting venture! Here's a three-step plan to help you get established and find woodworking jobs in the city, along with a list of local resources and studios.
 
-
 Here is a summary of the key information about woodworking studios and shops in Barcelona, as well as recent news events about woodworking in construction in the city:
+
+Based on the search results, the top woodworking and carpentry companies in Barcelona include:
+
+## Top Woodworking Companies in Barcelona
+
+1. Fenster: A company specializing in the manufacture and installation of aluminum, steel, and PVC carpentry, as well as curtain walls, façade cladding, and other complementary products. They have over 20 years of experience and have worked on numerous residential, commercial, and institutional projects.[2]
+
+2. Aluminis Tècnics Barcelona: A family-owned business with over 20 years of experience in aluminum carpentry. They install and maintain a wide range of products including doors, windows, shutters, enclosures, glass partitions, fences, pergolas, and railings.[2]
+
+3. Multifinestres: A Barcelona-based company specializing in the manufacture and installation of metal and glass carpentry.[2]
+
+4. Carpintería Guarque S.L.: A carpentry company that offers a wide range of services, from all types of carpentry work.[5]
+
+5. El Taller del Fuster: A carpentry workshop that specializes in kitchen and bathroom carpentry, as well as the repair and restoration of original woodwork.[5]
+
+6. Kingfisher Carpentry: A company that provides a full range of carpentry and woodworking services within the Barcelona area.[5]
+
+7. Carpintería Renovatio: A carpenter in Barcelona that specializes in the repair, modification, and installation of wooden furniture.[5]
+
+8. Otter: A company based in Barcelona that serves as a meeting point between carpenters and wood lovers.[5]
+
+Citations:
+[1] https://yelp.com/search?find_desc=Lumber&find_loc=Barcelona
+[2] https://www.lobostudio.es/en/top10-wood-carpentry-companies-in-barcelona/
+[3] https://www.f6s.com/companies/furniture/spain/barcelona/co
+[4] https://www.dnb.com/business-directory/company-information.other_wood_product_manufacturing.es.na.barcelona.html
+[5] https://www.angloinfo.com/barcelona/directory/barcelona-joiners-carpenters-carpentry-502
 
 Woodworking Studios and Shops in Barcelona:
 - Casa de la Fusta - A woodworking workshop in the La Sagrera neighborhood that combines traditional techniques with modern machinery[3].
